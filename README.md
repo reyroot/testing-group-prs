@@ -24,11 +24,11 @@ Para chegarmos à nascente do rio, tínhamos seguir subir o rio enfrentando a co
 
 
 
-No segundo dia da jornada, chegamos em uma comunidade. 
+No segundo dia da jornada, chegamos em uma comunidade.
 
 
 
-A equipe de reportagem, após ancorar a embarcação, foi entrevistar o cacique da tribo e os integrantes. 
+A equipe de reportagem, após ancorar a embarcação, foi entrevistar o cacique da tribo e os integrantes.
 
 
 
